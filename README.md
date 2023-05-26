@@ -1,6 +1,6 @@
 # Who Am I?
 
-👋 Hello! I'm Saleh Alnakdali, IT professional with a progressive background in Network Automation, system administration, and IT support. 🔍
+👋 Hello! I'm Saleh Alnakdali, IT professional with a progressive background in Network Automation, system administration, and IT support. 
 
 🚀 I'm constantly seeking opportunities to learn, grow, and make a positive impact.✨
 
